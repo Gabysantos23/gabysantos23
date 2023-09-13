@@ -10,8 +10,10 @@ meu nome é Gaby Santos
 
   machado.gabrielly28@escola.pr.gov.br
 
-  @_gabysanntos_
+  @__gabysanntos__
+  
+  ![](https://tenor.com/pt-BR/view/raphael-veiga-palmeiras-supercopa-flamengo-gif-27482383)
 
- ![]( https://tenor.com/pt-BR/view/raphael-veiga-veiga-veiga-palmeiras-gif-25382456)
+ 
 
  
